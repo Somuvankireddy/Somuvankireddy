@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Somuvankireddy
+- 👋 Hi, I’m @VANKIREDDY SOMESWARREDDY
 - 👀 I’m interested in Learning in new Technologies.
 - 🌱 I’m currently learning HTML,CSS,JAVASCRIPT,PYTHON.
 - 📫 How to reach me Contact:- 63055586671.
